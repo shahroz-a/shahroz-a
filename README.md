@@ -1,5 +1,5 @@
 ### Hi there 👋
-I am Shahroz, a Producr Designer based out of India.
+I am Shahroz, Producr Designer based out of India.
 
 - 🔭 I design and develop aesthetically pleasing, responsive and functional digital products.
 
